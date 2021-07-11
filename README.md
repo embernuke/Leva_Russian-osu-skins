@@ -13,3 +13,6 @@
 
 # [fierymod v8 realest ver](https://download1412.mediafire.com/uarm8xp9tzzg/4ryl6qqet0xs9nc/fierymod+v8+realest+ver.osk)
 ![](https://osu.ppy.sh/ss/16820726/19be)
+
+# [-__reowoTuna_v1.1_Selyu__-](https://cdn.discordapp.com/attachments/745305350269566996/863843783007404083/-__reowoTuna_v1.1_Selyu__-.osk)
+![](https://osu.ppy.sh/ss/16820921/4024)
